@@ -1,4 +1,4 @@
-**Blog2**
+**Blog #2**
 
 ## Communication and Teamwork
 
